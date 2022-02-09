@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @alan-osborn
-- In fact, this is @david-ajax's alternate account:)
